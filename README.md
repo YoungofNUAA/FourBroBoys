@@ -4,4 +4,4 @@
 我们相遇在08年初中时期，大家都有了自己美好的人生规划，我们出身农村，却不服从命运！！！
 愿前程似锦！！!
 
-![images](https://gitee.com/YoungofNUAA/FourBroBoys/blob/main/images/20220409_0.jpg)
+![image](https://gitee.com/YoungofNUAA/FourBroBoys/blob/main/images/20220409_0.jpg)
